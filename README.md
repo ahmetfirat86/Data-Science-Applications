@@ -1,0 +1,1 @@
+veri bilimcisi olcam
